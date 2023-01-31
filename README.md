@@ -1,2 +1,0 @@
-# lucagaleno
-Hi there!
